@@ -1,2 +1,0 @@
-# hirit2
-#dadasdasdsdadadsadsda
